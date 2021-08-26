@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![Gomer, Cutest cat ever!](https://imgur.com/ucLcTCK)
