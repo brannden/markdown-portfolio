@@ -1,1 +1,1 @@
-[GitHub](http://github.com/brannden)
+My top time waster [Imgur](https://imgur.com/)
