@@ -1,1 +1,1 @@
-![Gomer, Cutest cat ever!](https://imgur.com/ucLcTCK)
+![Gomer, Cutest cat ever](https://i.imgur.com/ucLcTCK.jpg)
